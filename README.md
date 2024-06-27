@@ -1,0 +1,6 @@
+![Screenshot 2024-06-26 203057](https://github.com/daivat7263/Ecommerce_flipkart/assets/53899850/3502245d-234e-42d0-b28e-7d9551b7c75b)
+![Screenshot 2024-06-26 203126](https://github.com/daivat7263/Ecommerce_flipkart/assets/53899850/2ff3def7-0fb9-4258-9649-8337aebc5236)
+![Screenshot 2024-06-26 203137](https://github.com/daivat7263/Ecommerce_flipkart/assets/53899850/dd736414-10ac-4099-8cd2-e3a849d6df4e)
+![Screenshot 2024-06-26 203146](https://github.com/daivat7263/Ecommerce_flipkart/assets/53899850/c44a33ad-153b-4973-8d55-36e3d0337ffd)
+![Screenshot 2024-06-26 203210](https://github.com/daivat7263/Ecommerce_flipkart/assets/53899850/9183a1b8-f034-47c4-978d-c2a18982b550)
+![Screenshot 2024-06-26 203222](https://github.com/daivat7263/Ecommerce_flipkart/assets/53899850/0817b65d-1720-4557-915f-77eba6277855)
